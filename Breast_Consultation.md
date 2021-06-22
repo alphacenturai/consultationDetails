@@ -34,3 +34,7 @@ Cancers are deadly because mostly they are diagnosed at a very late stage.This h
 - Change in bowel and bladder habits like constipation or recurrent diarrhea.
 - Blood in stool or urine.
 - History of cancer in maternal relatives (mother, grandmother, sister, maternal aunt) with less than 50 yrs of age especially breast, uterus, and ovary.
+
+## Self examination
+
+[Click here for instructions](https://canprotectfoundation.com/breast-self-examination-in-hindi/)
