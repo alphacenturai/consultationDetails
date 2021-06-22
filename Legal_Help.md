@@ -1,4 +1,4 @@
-`"I closes deals in heels."`
+`"I raise up my voice-not so I can shout but so that those without a voice can be heard."`
 
 ## Introduction
 
