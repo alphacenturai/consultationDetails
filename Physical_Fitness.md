@@ -1,4 +1,4 @@
-`"Success usually comes to those who are too busy to be looking for it."`
+`"Take care of your body. It's the only place you have to live."`
 
 ## Introduction
 
