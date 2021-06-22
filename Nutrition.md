@@ -1,4 +1,4 @@
-`"The first wealth is health. ~ Emerson"`
+`"You don't have to eat less - You just have to eat right."`
 
 ## Introduction
 
