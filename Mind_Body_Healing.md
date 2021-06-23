@@ -1,4 +1,4 @@
-`“Healing may not be so much about getting better, as about letting go of everything that isn't you – all of the expectations, all of the beliefs – and becoming who you are. ~ Rachel Naomi Remen`
+`“Healing may not be so much about getting better, it's about letting go of everything that isn't you – all of the expectations, all of the beliefs – and becoming who you are. ~ Rachel Naomi Remen`
 
 ## Introduction
 
@@ -15,7 +15,7 @@ But one can definitely improve the healing power of her body and protect against
 - Once you learn this art of being in the present moment you will learn to notice and accept your emotions without judgment.
 - This will further result in less stress, improved physical, mental as well as emotional well-being.
 - Easiest way to practice is through **mindful drinking**.
-Whenever you drink water or any other liquid, sit down properly,take small sips, feel every sip; focus on taste, smell, colour, texture, coolness of that liquid.Once you grasp the concept it is very easy to use it with almost any other routine activity.
+Whenever you drink water or any other liquid, sit down properly,take small sips, feel every sip; focus on taste, smell, colour, texture, coolness of that liquid.Once you grasp this concept it is very easy to use it with almost any other routine activity.
 
 ### Meditation
 
