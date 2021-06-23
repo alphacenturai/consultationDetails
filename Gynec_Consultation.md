@@ -10,9 +10,9 @@ Whenever you consult your gynec for any problem, you should also discuss PAP's s
 
 For most cancers, we don't know the exact cause till date. Studies show that balanced diet, regular physical activity and lifestyle changes can reduce your cancer risk substantially.
 
-Cervical cancer is caused by a virus called HPV and that's why we can prevent this cancer almost completely by simple vaccination. It can even be detected in a precancerous stage by simple testing (HPV, PAP's smear). Treatment of this precancerous stage is much simpler than that of cancer itself.
+Cervical cancer is caused by a virus called HPV and that's why we can prevent this cancer almost completely by vaccination. It can even be detected in a precancerous stage by easy testing (HPV, PAP's smear). Treatment of this precancerous stage is much simpler than that of cancer itself.
 
-In Spite of having such simple preventive measures, we are still facing a high number of cervical cancer cases and that too in an advanced stage. The simple reason is lack of awareness. So make yourself aware and take charge of your health, now!
+In Spite of having such simple preventive measures, we are still facing a high number of cervical cancer cases and that too in an advanced stage. The reason is lack of awareness. So make yourself aware and take charge of your health, now!
 
 ## Recommendations
 
