@@ -8,7 +8,11 @@ Like other cancers we don't know the exact cause of breast cancer so we can't pr
 
 ### Self breast examination
 
-Also known as self breast awareness. It is examination of your own breast regularly through a particular method, so that you know your breast very well and any change or even a small lump can be picked up early. But only self breast examination is not sufficient. An yearly examination by your Breast Surgeon is certainly recommended.
+Also known as self breast awareness. It is examination of your own breast regularly through a particular method, so that you know your breast very well and any change or even a small lump can be picked up early.
+It should be done on a fixed day (between 7 to 10th day) of your periods every month. Please use the reminder facility provided on the App. But only self breast examination is not sufficient; An yearly examination by your Breast Surgeon is certainly recommended. 
+Lets see how to do self  breast examination:
+link 
+
 
 ### Mammography
 
