@@ -12,6 +12,6 @@ It is the easiest exercise. One should have a brisk walk at least for 15-30 mins
 
 ## Yoga
 
-It is a blend of physical movements and breathing techniques. It brings physical ,mental, hormonal and emotional harmony to the body and thus prevents us from many diseases. Most gynecological problems are due to hormonal imbalance like irregular periods, PCOS, Fertility issues, Perimenopausal problems including mood swings etc. Yoga thus has a preventive as well as therapeutic role in all.
+It is a blend of physical movements and breathing techniques. It brings physical ,mental, hormonal and emotional harmony to the body and thus prevents us from many diseases. Most gynecological problems are due to hormonal imbalance like irregular periods, PCOS, Fertility issues, Perimenopausal problems including mood swings etc. Yoga thus has a preventive as well as therapeutic role in all.If complete yoga is not possible, do suryanaskar only.Just take out 15-20 min everyday and you will be away from all these difficult to treat diseases.
 
-**You can practice through given videos OR you can talk to our yoga expert.**
+**we are sharing videos on daily quick yoga and suryanamaskar by our experts, you can practice through it OR can join our  expert.**
