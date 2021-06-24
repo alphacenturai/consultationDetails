@@ -18,4 +18,4 @@ Here are a few ideas for you to consider and implement:
 8. Go for an outing. Make time compulsorily.
 9. Pursue your hobbies; it is a very good stress buster.
 
-**Talk it out. Take help from our counselor; they are just one message away.**
+**Talk it out, our counselors are just one click away.**
