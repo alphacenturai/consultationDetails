@@ -28,4 +28,8 @@ Whenever you drink water or any other liquid, sit down properly,take small sips,
 
 [![Watch the video](https://img.youtube.com/vi/KTkjZPQZuvk/default.jpg)](https://youtu.be/KTkjZPQZuvk)
 
+<a href="http://www.youtube.com/watch?feature=player_embedded&v=KTkjZPQZuvk" target="_blank">
+ <img src="http://img.youtube.com/vi/KTkjZPQZuvk/mqdefault.jpg" alt="Watch the video" width="240" height="180" border="10" />
+</a>
+
 For healing meditation, you can talk to our meditation guide.**
