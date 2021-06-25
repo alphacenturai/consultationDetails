@@ -3,8 +3,7 @@
 ## Introduction
 
 Whenever there is any breast related issue, the first question that comes to our mind is whom should I Consult? Gynecologist? And the answer is NO! You should consult Breast Surgeons who are specialised in dealing with all breast related problems, including cancer. Not all breast lesions are cancer but it needs proper evaluation by experts to rule it out.
-
-Like other cancers we don't know the exact cause of breast cancer so we can't prevent it completely, But breastfeeding, a balanced diet, regular physical activity and lifestyle modifications can reduce your cancer risk. Good news is that it is almost completely curable if diagnosed at an early stage and this is only possible through regular self breast examination and routine mammography. Lets see how:
+We don't know the exact cause of breast cancer so we can't prevent it completely, But breastfeeding, a balanced diet, regular physical activity and lifestyle modifications can reduce your cancer risk. Good news is that it is almost completely curable if diagnosed at an early stage and this is only possible through regular self breast examination and routine mammography. Lets see how:
 
 ### Self breast examination
 
