@@ -26,6 +26,6 @@ Whenever you drink water or any other liquid, sit down properly,take small sips,
 
 **Here we are sharing a short guided mindfulness meditation:**
 
-[![Watch the video](https://img.youtube.com/vi/KTkjZPQZuvk/default.jpg)](https://youtu.be/KTkjZPQZuvk)
+[![Watch the video](https://img.youtube.com/vi/KTkjZPQZuvk/hqdefault.jpg)](https://youtu.be/KTkjZPQZuvk)
 
 For healing meditation, you can talk to our meditation guide.**
