@@ -1,6 +1,4 @@
-Hi,
-
-**_Welcome to Naarya!_**  
+Hi, **_Welcome to Naarya!_**  
 
 I am **_Dr. Niyati_**, a Gynecologist by profession. 
 
