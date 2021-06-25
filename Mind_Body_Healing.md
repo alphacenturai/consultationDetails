@@ -24,9 +24,9 @@ Whenever you drink water or any other liquid, sit down properly,take small sips,
 - The purpose of meditation is to train attention and awareness and achieve a mentally clear and emotionally calm - stable state.
 - It has a healing effect on the body; it can be used as a therapeutic technique.
 
-### Here we are sharing a short guided mindfulness meditation
+## Here we are sharing a short guided mindfulness meditation
 
-- Guided Mindfulness Meditation by Vaishnavi
+[**Guided Mindfulness Meditation by Vaishnavi**](https://youtu.be/KTkjZPQZuvk)
 
   [![Watch the video](https://img.youtube.com/vi/KTkjZPQZuvk/hqdefault.jpg)](https://youtu.be/KTkjZPQZuvk)
 
