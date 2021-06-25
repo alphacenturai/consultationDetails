@@ -9,9 +9,10 @@ We don't know the exact cause of breast cancer so we can't prevent it completely
 
 Also known as self breast awareness. It is examination of your own breast regularly through a particular method, so that you know your breast very well and any change or even a small lump can be picked up early.
 It should be done on a fixed day (between 7 to 10th day) of your periods every month. Please use the reminder facility provided on the App. But only self breast examination is not sufficient; An yearly examination by your Breast Surgeon is certainly recommended. 
-Lets see how to do self  breast examination:
-link 
 
+**Lets see how to do self  breast examination:**
+ 
+[Click here for instructions](https://canprotectfoundation.com/breast-self-examination-in-hindi/)
 
 ### Mammography
 
@@ -37,7 +38,3 @@ Cancers are deadly because mostly they are diagnosed at a very late stage.This h
 - Change in bowel and bladder habits like constipation or recurrent diarrhea.
 - Blood in stool or urine.
 - History of cancer in maternal relatives (mother, grandmother, sister, maternal aunt) with less than 50 yrs of age especially breast, uterus, and ovary.
-
-## Self examination
-
-[Click here for instructions](https://canprotectfoundation.com/breast-self-examination-in-hindi/)
