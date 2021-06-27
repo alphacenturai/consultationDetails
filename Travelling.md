@@ -8,4 +8,4 @@
 
 But we women are not always comfortable in planning travel as it looks quite tedious. Not any more,
 
-**you can do it by a single click through our travel partners.**
+**You can do it by a single click through our travel partners.**
