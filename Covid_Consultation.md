@@ -6,9 +6,9 @@ Early diagnosis, intense monitoring, appropriate and timely treatment, is the on
 
 ## Symptoms
 
-- Cold, no matter how mild is
+- Cold, no matter how mild it is
 - Cough
-- Fever, even low grade (99 F)
+- Fever, even low grade
 - Weakness, even if it is the only symptoms
 - Bodyache, Headache
 - Diarrhea (even only 1-2 episodes)
@@ -28,8 +28,8 @@ The moment you notice these symptoms, isolate yourself so that other members don
 ### Other supportive measures
 
 - Proper hydration (Drink lots of water)
-- balanced diet (Our dieticians are here to help you for that)
+- Balanced diet (Our dieticians are here to help you for that)
 - Walking and leg exercise
 - Meditation
 - Reading good books
-- Stay positive and motivated
+- Staying positive and motivated
