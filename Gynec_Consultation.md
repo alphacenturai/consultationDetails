@@ -4,7 +4,7 @@
 
 More responsibility and less time, this is the problem with almost every woman in the present world and that results in ignorance of our health problems. We bring you this digital platform where you can discuss your problems through Whatsapp messaging and depending upon the issue we shall arrange online or in person consultation.
 
-Whenever you consult your gynec for any problem, you should also discuss PAP's smear and vaccination against cervical cancer.
+We recommond,whenever you consult your gynec for any problem, you should also discuss PAP's smear and vaccination against cervical cancer.
 
 ### Let's see why
 
