@@ -1,4 +1,4 @@
-`“Healing may not be so much about getting better, it's about letting go of everything that isn't you – all of the expectations, all of the beliefs – and becoming who you are. ~ Rachel Naomi Remen`
+`“Healing may not be so much about getting better, it's about letting go of everything that isn't you – all of the expectations, all of the beliefs – and becoming who you are" ~ Rachel Naomi Remen`
 
 ## Introduction
 
