@@ -12,14 +12,14 @@ For most cancers, we don't know the exact cause till date. Studies show that bal
 
 Cervical cancer is caused by a virus called HPV and that's why we can prevent this cancer almost completely by vaccination. It can even be detected in a precancerous stage by easy testing (HPV, PAP's smear). Treatment of this precancerous stage is much simpler than that of cancer itself.
 
-In Spite of having such simple preventive measures, we are still facing a high number of cervical cancer cases and that too in an advanced stage. The reason is lack of awareness. So make yourself aware and take charge of your health, now!
+In spite of having such simple preventive measures, we are still facing a high number of cervical cancer cases and that too in an advanced stage. The reason is lack of awareness. So make yourself aware and take charge of your health, now!
 
 ## Recommendations
 
 ### Vaccine
 
 - Presently 2 vaccines are available in India. Both are equally effective and safe. Ideal time for vaccination is 9-14 years but can be given up to 26 yrs of age.
-- 2 doses, 6 months apart are required if given between 9-14 years.
+- 2 doses,at 6 months interval are required if given between 9-14 years.
 - For 15 -26 years, 3 doses are required at 0, 1, and 6 months.
 
 ### Screening
