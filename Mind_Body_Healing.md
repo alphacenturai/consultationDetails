@@ -14,9 +14,8 @@ But one can definitely improve the healing power of her body and protect against
 - It can also bring positive changes in attitude and behavior.
 - Once you learn this art of being in the present moment you will learn to notice and accept your emotions without judgment.
 - This will further result in less stress, improved physical, mental as well as emotional well-being.
-- Easiest way to practice is through **mindful drinking**.
-Whenever you drink water or any other liquid, sit down properly,take small sips, feel every sip; focus on taste, smell, colour, texture, coolness of that liquid.Once you grasp this concept it is very easy to use it with almost any other routine activity.
-
+- Easiest way to practice is through say - **mindful drinking**.
+Whenever you drink water(or any other liquid for that matter), sit down properly and take small small sips. Feel every sip. Focus on taste, smell, colour, texture, coolness etc. This way you will cherish the drink and be Mindful about it. Once you grasp this concept it is very easy to use it with almost any other seemingly routine activity.
 ### Meditation
 
 - It is a deeper level of mindfulness with a higher purpose.
