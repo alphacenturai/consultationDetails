@@ -15,7 +15,7 @@ Early diagnosis, intense monitoring, appropriate and timely treatment, is the on
 - Vomiting (especially in children)
 - Loss of smell and taste
 
-The moment you notice these symptoms, isolate yourself so that other members don't get infected. Counting of days should be done from the very first day of your first symptom. Consult the expert, start treatment and monitoring. Remember monitoring is crucial!
+The moment you notice these symptoms, isolate yourself so that other members don't get infected. Counting of days should be done from the very first day of your first symptom. Consult the expert, start treatment and monitoring. Remember "monitoring" is crucial!
 
 ## Written records of below vitals will prove useful
 
